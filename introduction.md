@@ -1,0 +1,5 @@
+
+	INTRODUCTION
+
+
+	Using the example of Toronto, other parts of Canada think Torontonians feel they are prosperous and glamorous like an American city. With a population of over 2.73 million people, is Toronto more American or Canadian. To examine this, a comparison will be done using a Canadian and an American city. The selection of these cities is explained in the Data section below. The cities select are Edmonton, pop. 930,000+, and Atlanta, pop. 480,000 – 4,975,000. Will similarities in latitude, longitude, climate or topography contribute to any similarities between Toronto and the other two cities? 
